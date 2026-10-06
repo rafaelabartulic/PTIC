@@ -1,0 +1,2 @@
+# PTIC
+informática 
